@@ -50,8 +50,7 @@ Este projeto foi criado com ❤️ por Petrucci.
 Siga-me nas redes sociais:
 
 GitHub
-Twitter
-Instagram
+
 Aproveite o site NLW Esports! 🎮🕹️
 
 
